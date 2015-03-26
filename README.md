@@ -1,3 +1,4 @@
+kun bo`yi yig`ladik kim o`lganini bilmadik, unchalik tushinmadik
 ========================
 
 Gumba Website Template
